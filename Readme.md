@@ -1,0 +1,5 @@
+Tarts are sweet little pastries with the crispy crunchy crust. The buttery, crispy, crumbly tart crust goes well with any filling whether you like jams, nuts, chocolate or any savory filling like chicken, beef, ham or minced meat of your choice.
+This no-bake chocolate tart is so yummy that you can easily wipe out a chocolate tart like this for dinner or even in lunch.
+A no-bake chocolate tart with few ingredients is good and divine in taste. The richness of a crunchy, nutty and crumbly crust topped with smooth, silky chocolate ganache filling, balance by fabulously fresh cream, berries or with nuts is out of the world. Everyone thinks that you turned into a professional pastry chef.
+This sweet classic and yummy dessert will become the first choice of every dinner party hosted by you. Its way easy and the outcome is so mesmerizing that you just seem to stare it consecutively.
+Every bite of this yummy dessert will melt in your mouth and every single ingredient will punch on your buds separately. You will feel like in chocolate heaven after having a single bite of this treat.
